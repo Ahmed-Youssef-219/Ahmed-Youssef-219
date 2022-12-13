@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on develop blender program
 - 📫 How to reach me ...
 -   my linkedIn link is linkedin.com/in/ahmed-youssef-7a6223247 
--   whatsapp ==> 01006167830
+- 
 - 
 
 <!---
